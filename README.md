@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @keerthana5958v
 - 👀 I’m interested in ... A lot of things
 - 🌱 I’m currently learning ... Everyday.
-- 💞️ I’m looking to collaborate on ... Code.
+- 💞️ I’m looking to collaborate on ... Code ...
 - 📫 How to reach me ... Follow your heart
 - 😄 Pronouns: ... She
 - ⚡ Fun fact: ...  Not all clouds float, sometimes they sit on a hot machine

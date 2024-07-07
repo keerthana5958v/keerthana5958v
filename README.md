@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ... Code ...
 - 📫 How to reach me ... Follow your heart <3
 - 😄 Pronouns: ... She
-- ⚡ Fun fact: ...  Not all clouds float, sometimes they sit on a hot machine
+- ⚡ Fun fact: ... I'm 21, yay!
+- Juat know that: ... Not all clouds float, sometimes they sit on a hot machine
 
 <!---
 keerthana5958v/keerthana5958v is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

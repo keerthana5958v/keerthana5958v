@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Everyday...   
 - 💞️ I’m looking to collaborate on ... Code ...  
 - 📫 How to reach me ... Follow your heart <3  
-- 😄 Pronouns: ... She 
+- 😄 Pronouns: ... She  
 - ⚡ Fun fact: ... I'm 20, yay!    
 - Just know that: ... Not all clouds float, sometimes they sit on a hot machine    
  
